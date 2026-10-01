@@ -1,0 +1,2 @@
+# TRASH-ROBOT
+Who cares? ☆•°
